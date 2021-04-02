@@ -4,7 +4,7 @@
 music production in Ableton Live 11, FL Studio 20, and graphic design. 
 - 💞️ I’m looking to collaborate on any projects that will allow me to utilize my current skill set while teaching me new skills I can add to my belt. 
 Any projects involving music, entertainment, lighting or graphic desgin are a huge plus!
-- 📫 You can reach me at my personal portfolio site at; https://www.ShawnWeintreaub.com. 
+- 📫 You can reach me at my personal portfolio site at; https://www.ShawnWeintraub.com. 
 - Cheers!
 
 <!---
